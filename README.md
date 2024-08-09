@@ -1,7 +1,7 @@
 # yukialpha
 <p>学会摸鱼🐟</p>
-
-
+[人生重开](https://picture.liveforillya.top/restart)
+<https://picture.liveforillya.top/restart>
 
 
 
